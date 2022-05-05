@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... key code
 - 🌱 I’m currently learning ...software int
 - 💞️ I’m looking to collaborate on ... everyone gives advice
-- 📫 How to reach me ...line.me/to/p/WkLpmXH1DV
+- 📫 How to reach me ...Mail//pain16973@gmail.com//</>
 
 <!---
 Pain16973/Pain16973 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
